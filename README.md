@@ -13,7 +13,7 @@ mas por enquanto vou devagar, mas em breve
 ta saino essas versões
 
 
-➡Créditos das ferramentas:
+➡Créditos das ferramentas do script v1:
 
 ◾MrEmpy
 
