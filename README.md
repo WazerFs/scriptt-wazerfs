@@ -19,11 +19,11 @@ ta saino essas versões
 
 ◾Luan-Devecchi
 
-◾
+◾TheReaper167
 
-◾
+◾bug7sec
 
-◾
+◾Cesar-Hack-Gray
 
 ◾
 
