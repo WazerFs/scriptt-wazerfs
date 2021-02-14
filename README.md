@@ -16,12 +16,20 @@ ta saino essas versões
 ➡Créditos das ferramentas:
 
 ◾MrEmpy
+
 ◾Luan-Devecchi
+
 ◾
+
 ◾
+
 ◾
+
 ◾
+
 ◾
+
 ◾
-◾
+
+
 ◾
