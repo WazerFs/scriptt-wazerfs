@@ -11,3 +11,17 @@
 ▪ Por mim, não será apenas para clonar
 mas por enquanto vou devagar, mas em breve
 ta saino essas versões
+
+
+➡Créditos das ferramentas:
+
+◾MrEmpy
+◾
+◾
+◾
+◾
+◾
+◾
+◾
+◾
+◾
