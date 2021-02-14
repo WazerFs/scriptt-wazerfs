@@ -7,8 +7,8 @@
 ▶Na v2 terá no 10 ferramentas em cada opção
 
 
-▶E na v3 as ferramentas serão todas criadas
-▪ Por mim, não será apenas para clonar
+▶E na v3 as ferramentas serão todas criadas 
+por mim, não será apenas para clonar
 mas por enquanto vou devagar, mas em breve
 ta saino essas versões
 
